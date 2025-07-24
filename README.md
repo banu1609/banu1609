@@ -4,6 +4,7 @@
 📍 Chennai, India  
 📧 banu1692002@gmail.com  
 🔗 [LinkedIn](https://www.linkedin.com/in/banumathi-b-s-557174281) | [GitHub](https://github.com/banu1609)
+port folio https://banumathi-portfolio.lovable.app
 
 ---
 
