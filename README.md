@@ -60,14 +60,7 @@ I’m a motivated and enthusiastic Computer Science Engineering student from **V
 
 ---
 
-## 🌐 Languages
 
-- Tamil (Fluent)  
-- English (Fluent)  
-- Telugu (Fluent)  
-- German (Basic)  
-
----
 
 > ✨ “Striving to turn curiosity into innovation, and challenges into solutions.”
 
